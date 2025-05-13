@@ -1,2 +1,0 @@
-# Communities
-Communities in Accra
